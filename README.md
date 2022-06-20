@@ -1,1 +1,1 @@
-# demo1
+# AI TRENDS
